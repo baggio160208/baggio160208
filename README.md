@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+### Voce pode estrar em contato comigo :mailbox
+
+Julia baggio 
+
+@juliabaggio
+
+![](https://tenor.com/iHhV4gKQge2.gif)
